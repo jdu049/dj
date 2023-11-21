@@ -1,1 +1,1 @@
-# Nodir
+# Nodir Xakimov
